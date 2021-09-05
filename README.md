@@ -1,3 +1,10 @@
+![дз 3 6](https://user-images.githubusercontent.com/90043274/132140404-9708b493-d0e6-4431-9517-b0920ef13958.png)
+![дз 3 7](https://user-images.githubusercontent.com/90043274/132140405-3b7a13d6-358a-42c3-992a-2db17e54314d.png)
+![дз 3 1 ](https://user-images.githubusercontent.com/90043274/132140406-0d8314f8-a07f-4d27-b1ff-0c21fb01687f.png)
+![дз 3 2](https://user-images.githubusercontent.com/90043274/132140408-1336e0fc-e703-406f-b56c-b618de5277a7.png)
+![дз 3 3](https://user-images.githubusercontent.com/90043274/132140409-906daad9-6f1e-441c-8104-68f8bcdfc1c3.png)
+![дз 3 4](https://user-images.githubusercontent.com/90043274/132140411-d6aae619-4d0f-47a2-a6f2-4f544758c18a.png)
+![дз 3 5](https://user-images.githubusercontent.com/90043274/132140412-39220392-7d13-43b0-bbf1-3a0d1968d555.png)
 ### Hi there 👋
 
 <!--
